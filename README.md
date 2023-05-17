@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ferguson00
-- 👀 I’m interested inPROGRAMMING AND ENGLISH
+- 👀 I’m interested in PROGRAMMING AND ENGLISH
 - 🌱 I’m currently learning BOTH OF THEM
 - 💞️ I’m looking to collaborate on PROGRAMING FOCUS ON DEVELOPMENT AND SECURITY
 - 📫 How to reach me AT ITSE XD
